@@ -8,7 +8,7 @@
 - 4月30日 拿到文书
 - 5月06日 拿到驾照
 - 5月11日 考试 CKA 未通过
-- 5月22日 补考 CKA 等待好消息
+- 5月22日 补考 CKA ~~等待~~[好消息](https://ti-user-certificates.s3.amazonaws.com/e0df7fbf-a057-42af-8a1f-590912be5460/a1817a1e-3009-4d47-9a7b-fafd48ad1c04-98e50977-baef-448e-b67a-4ec8af132311-certificate.pdf)
 
 ## 序
 
